@@ -1,1 +1,1 @@
-# Looping-bintang-berspasi 1
+# Looping-bintang-berspasi
