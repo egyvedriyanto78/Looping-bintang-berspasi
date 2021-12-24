@@ -1,1 +1,1 @@
-# Looping-bintang-berspasi 12
+# Looping-bintang-berspasi 1
