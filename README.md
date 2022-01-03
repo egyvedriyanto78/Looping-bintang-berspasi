@@ -1,2 +1,2 @@
 # Looping-bintang-berspasi
-DDDDDDDDDD
+DDDDDDDDD
